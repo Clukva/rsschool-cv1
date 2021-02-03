@@ -14,7 +14,7 @@ _Email: yura4-1-1@mail.ru_
 -drink alcohol.
 
 *I like;*\
--to learn.\ 
+-to learn.\
 -fishing.\
 -stay in form and be healthy.\
 -netflix.
